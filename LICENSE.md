@@ -1,4 +1,4 @@
-# 
+# Instant degen coin sniper bot tools for Mac OS | Custom degen coin sniper bot tools for PC Windows. Featuring private rpc endpoints and volume analysis — optimized for maximum performance on every platform.
 
 
 
